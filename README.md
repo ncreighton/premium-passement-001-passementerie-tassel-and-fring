@@ -1,0 +1,2 @@
+# premium-passement-001-passementerie-tassel-and-fring
+Tired of losing track of that perfect tassel or fringe design between Pinterest boards, supplier emails, and sketchbooks? The Passementerie Tassel and Fringe Design Hub brings every inspiration, specification, and sourcing detail into one organized Notion workspace.  This hub eliminates the chaos of scattered references, giving you a structured dat
